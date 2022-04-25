@@ -6,7 +6,7 @@
 
 -👨‍🎓 Logística  
 
--🔰 Fuzileiro Naval 
+-🔰 fuzileiro NAVAL
 
 -🐴🐮Laço Comprido
  
